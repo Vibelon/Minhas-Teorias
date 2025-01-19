@@ -34,4 +34,6 @@ Outro ponto que prova que esta teoria está errada é que os buracos negros cres
 
 ### O que eu acho:
 
-Em minha opinião o que há dentro de um buraco negro é um ponto de densidade máxima. A níveis gravitacionais de um buraco negro os átomos podem ser divididos em prótons, neutrons e eletrons, e devido a gravidade todos irão se juntar no mesmo ponto, e então isso irá crescer com forme as matérias são atraidas, então, em minha opinião, o que existe dentro de um buraco negro é um super átomo.
+Em minha opinião o que há dentro de um buraco negro é um ponto de densidade máxima. A níveis gravitacionais de um buraco negro os átomos podem ser divididos em prótons, neutrons e eletrons, e devido a gravidade todos irão se juntar no mesmo ponto, e então isso irá crescer com forme as matérias são atraidas, então, em minha opinião, o que existe dentro de um buraco negro é um super átomo. Um átomo maior que um planeta.
+
+Talvez, nestes níveis gravitacionais, até mesmo os protons e os neutrons possam ser divididos em unidades menores, as quais ainda não são conhecidas pela ciência, permitindo que mais matéria seja colocada no mesmo espaço, aumentando assim o limite de densidade permitido pelo universo da forma como o conhecemos.
